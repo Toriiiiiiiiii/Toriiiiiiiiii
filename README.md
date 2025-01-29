@@ -1,4 +1,5 @@
 ## ![Under construction gif](https://web.archive.org/web/20091027071000/http://geocities.com/jpdetroitusa/CONSTRUCTION_ANIMEE.gif) Profile under construction....
+*For more, please visit my [personal website](https://tori.poyoweb.org).*
 
 <!--
 **Toriiiiiiiiii/Toriiiiiiiiii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
